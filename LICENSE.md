@@ -1,4 +1,4 @@
-# 
+# exclusive Adobe Photoshop for PC scripts is the best Adobe Photoshop for PC scripts with export-presets and style-panels. Safe, reliable, and optimized for maximum performance.
 
 
 
